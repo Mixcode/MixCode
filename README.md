@@ -1,4 +1,4 @@
-### 👋 Hi, I’m @mixcode
+### 👋 Hi, I’m github.com/mixcode
 
 I use this account for my personal hobbies.
 
